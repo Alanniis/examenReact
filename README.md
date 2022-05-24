@@ -5,5 +5,5 @@
 - Hipólito Loaeza Alexis Eduardo.
 - Marianito Cuahuitic Imanol.
 - Ramírez Cabrera Ana Laura.
-- Pacheco Gonzáles Juan Enrique.
+- Pacheco González Juan Enrique.
 - Sánchez Zaragoza Francisco Javier.
